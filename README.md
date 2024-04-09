@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Cfrzr
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on Game Dev
+- 📫 How to reach me Discord
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: ...
